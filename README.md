@@ -2,6 +2,6 @@
 
 **Bem vindo ao livro de receitas**
 
-- Pudim de leite condensado.
+- Pudim de leite condensado
 
   
